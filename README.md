@@ -1,5 +1,7 @@
 # tsundoku
 
+THE MACHIYA KAZAHAYA K
+
 Itinerario de 3 días y medio (≈ 84 h)
 Objetivo: Visitar los principales atractivos de Kioto, el santuario Fushimi Inari‑Taisha y la ciudad histórica de Nara sin prisas, combinando cultura, naturaleza y gastronomía.
 
