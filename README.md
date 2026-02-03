@@ -2,6 +2,7 @@
 
 THE MACHIYA KAZAHAYA K
 https://www.mochileandoporelmundo.com/guia-viaje-japon/
+https://www.mochileandoporelmundo.com/cuanto-cuesta-viajar-a-japon-presupuesto-mochileros/
 
 Itinerario de 3 días y medio (≈ 84 h)
 Objetivo: Visitar los principales atractivos de Kioto, el santuario Fushimi Inari‑Taisha y la ciudad histórica de Nara sin prisas, combinando cultura, naturaleza y gastronomía.
