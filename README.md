@@ -70,3 +70,51 @@ Día	Horas activas	Principales sitios
 3	07:00‑22:00	Todai‑ji, Kasuga Taisha, Nara‑machi
 4 (½)	08:00‑15:00	Arashiyama, Tenryū‑ji, regreso
 Con este plan tendrás tiempo suficiente para disfrutar cada lugar sin sentirte apurado, y aún podrás saborear la gastronomía local y la atmósfera única de cada zona. ¡Que tengas un viaje inolvidable!
+
+
+
+# FUJI
+¡Qué buena idea! Ver el Monte Fuji en una excursión corta desde Tokio es totalmente posible si eliges la ruta adecuada y planificas bien el tiempo. Aquí tienes dos opciones que encajan dentro de tu límite de ≈ 6 horas (ida‑y‑vuelta incluidas) y te ofrecen una vista panorámica espectacular sin necesidad de subir al propio volcán.
+
+1️⃣ Ruta “Tokio → Lago Kawaguchi → Monte Tenjō” (≈ 5 – 6 h)
+Paso	Cómo hacerlo	Tiempo aproximado
+Salida de Tokio	Toma la línea JR Chūō (Rapid) desde Shinjuku o Tokyo Station hasta Otsuki.	1 h 10 min
+Transferencia	Cambia a la Fujikyu Railway (línea Kawaguchiko) en Otsuki y sigue hasta Kawaguchiko.	45 min
+Llegada al lago	Desde la estación de Kawaguchiko camina unos 5 min hasta la zona del lago.	—
+Ropeway a Monte Tenjō	Compra el ticket del Kachi‑Kachi Ropeway (costo ≈ ¥ 1 200 ida‑y‑vuelta) y sube 600 m hasta la plataforma de observación. La vista del Monte Fuji sobre el lago es una de las más fotografiadas de Japón.	10 min subir + 20 min disfrutar
+Regreso a Tokio	Repite el mismo trayecto en sentido inverso.	2 h – 2 h 15 min
+Ventajas
+
+Tiempo total: alrededor de 5 – 6 h, dejando margen para una breve parada de fotos o un snack en la zona del lago.
+Vistas icónicas: El mirador del Monte Tenjō ofrece una panorámica del Fuji reflejado en el Lago Kawaguchi, ideal para fotos al amanecer o al atardecer (si tu ventana de tiempo lo permite).
+Facilidad: No necesitas cambiar de tren más de una vez y los horarios son frecuentes (aprox. cada 30 min).
+Consejos prácticos
+
+Clima: El día debe estar despejado. Consulta el pronóstico (por ejemplo, en Weather.com) antes de salir; la visibilidad del Fuji desaparece con nubes bajas.
+Billetes: Usa tu tarjeta IC (Suica/PASMO) para el tramo JR; compra el ticket del ropeway en la estación de Kawaguchiko o directamente en la base del teleférico.
+Equipaje ligero: Lleva solo lo esencial (botella de agua, cámara, paraguas plegable). Los compartimentos de equipaje en los trenes locales son limitados.
+Horario: Sal temprano (≈ 07:00 h) para maximizar la luz y evitar la mayor afluencia de turistas.
+2️⃣ Ruta “Tokio → Gotemba Premium Outlets → Vista del Fuji” (≈ 5 h 30 min)
+Esta opción combina compras rápidas con una vista del Monte Fuji desde la zona de Gotemba.
+
+Paso	Detalle	Tiempo
+Salida de Tokio	Toma el Shinkansen Hikari desde Tokyo a Mishima (≈ 50 min).	50 min
+Transferencia	Autobús local (JR Bus o Tokyu Bus) desde la estación de Mishima a Gotemba Premium Outlets.	35 min
+Vista del Fuji	En el parking del outlet hay varios miradores gratuitos con vistas despejadas del Monte Fuji (especialmente al atardecer).	30 min – 1 h
+Regreso	Repite el mismo trayecto en sentido inverso.	2 h 30 min
+Ventajas
+
+Comodidad: Solo un cambio de transporte (tren‑>‑autobús) y la posibilidad de comprar souvenirs o ropa.
+Vista urbana: El mirador del outlet está a unos 800 m de altitud y suele ofrecer una vista clara del Fuji cuando el clima lo permite.
+Desventajas
+
+Menos “natural”: La vista está entre edificios y tiendas, no tan pintoresca como la del lago Kawaguchi.
+Coste: El Shinkansen y el autobús suman un gasto mayor que la ruta anterior.
+Recomendación final
+Si tu objetivo principal es una panorámica espectacular del Monte Fuji y quieres aprovechar al máximo tus 6 horas, la ruta al Lago Kawaguchi + Ropeway es la mejor opción. Es más “escénica”, tiene menos coste y te brinda una vista clásica del Fuji reflejado en el agua, que es lo que la mayoría de viajeros buscan en una visita corta.
+
+Checklist rápido antes de salir
+Revisa el clima (visibilidad del Fuji).
+Compra los billetes (JR Chūō Rapid y Fujikyu Railway) o verifica horarios en la app de Hyperdia/Google Maps.
+Empaca ligero: cámara, botella de agua, protector solar y una chaqueta ligera.
+Llega a la estación al menos 10 min antes del tren para evitar contratiempos.
