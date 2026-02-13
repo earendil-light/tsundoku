@@ -118,3 +118,8 @@ Revisa el clima (visibilidad del Fuji).
 Compra los billetes (JR Chūō Rapid y Fujikyu Railway) o verifica horarios en la app de Hyperdia/Google Maps.
 Empaca ligero: cámara, botella de agua, protector solar y una chaqueta ligera.
 Llega a la estación al menos 10 min antes del tren para evitar contratiempos.
+
+
+# TOKYO
+* Shibuya
+* 
